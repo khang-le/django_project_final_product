@@ -1,0 +1,1 @@
+This is a blog that you can register and post things about the game called "League Of Legends". Here is where you share your experience that you have while playing the game, and how to get better ranked.
